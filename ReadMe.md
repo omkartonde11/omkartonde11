@@ -18,5 +18,4 @@ I am currently working on my passion project<br>I am looking to collaborate on m
 ---
 [![](https://visitcount.itsvg.in/api?id=omkartonde11&icon=10&color=13)](https://visitcount.itsvg.in)
 
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->"# omkartonde11" 
-"# omkartonde11" 
+
